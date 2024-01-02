@@ -1,1 +1,0 @@
-# minhyeokgod.github.io
